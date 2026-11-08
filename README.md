@@ -6,8 +6,8 @@ MELATONIN　⟋　METHYLENE <br> HE　⟋　IT　⟋　NEOS. <br> MINOR , �
 
 <p align="center"  
 
-currently big into ; ZENITH TOWER, NULLSCAPE, SIIVAGUNNER, <br> 
+currently big into ; ZENITH　TOWER,　NULLSCAPE,　SIIVAGUNNER, <br> 
 <p align="center" 
 
-UNORTHODOX ACCOUNTING, ULTRAKILL, RAIN WORLD, and CONTENT WARNING.  <br>
+UNORTHODOX ACCOUNTING,　ULTRAKILL,　RAIN WORLD,　and　CONTENT　WARNING.  <br>
 
