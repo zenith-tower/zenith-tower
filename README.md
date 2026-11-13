@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://file.garden/alEbDZ-ki1kQDw7C/tenor.gif"/><br>
+<img src="https://file.garden/alEbDZ-ki1kQDw7C/Untitled386_20261113112424.png"/><br>
 <p align="center"
 
 MELATONIN　⟋　METHYLENE <br> HE　⟋　IT　⟋　NEOS. <br> MINOR ,  INTP. <br>
